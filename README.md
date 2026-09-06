@@ -1,1 +1,0 @@
-# geniuskala-seo-weekly-monthly
